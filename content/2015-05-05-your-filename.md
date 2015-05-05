@@ -1,3 +1,0 @@
-## About page
-
-Also that
